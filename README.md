@@ -1,7 +1,7 @@
 # Help with paint in windows
 
 
-[![help with paint in windows](red2.png)](https://computersolve.com/help-with-paint-in-windows/)
+[![help with paint in windows](red2.png)](https://icncomputer.com/help-with-paint-in-windows/)
 
 
 
